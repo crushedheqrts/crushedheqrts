@@ -1,5 +1,7 @@
 # ✧ welcomes2 intro,,!
 
+![](https://komarev.com/ghpvc/?username=litteryzu&color=641c41&style=for-the-badge&label=PROFILE+VIEWS) 
+
 ![tumblr_d2f19eb03779017c4e6278309992f1a4_3def4c0b_1280 (1)](https://github.com/user-attachments/assets/c453eec9-be65-4984-9608-f8e4fa9f4542)
 
 
