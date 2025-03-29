@@ -1,6 +1,8 @@
 
 ![tumblr_71890a28262fcbd05672d17686fb6bd9_3d902d44_1280 (2)](https://github.com/user-attachments/assets/c575db77-31f6-4e89-bc49-f7da4bdd70ce)
 
+![](https://komarev.com/ghpvc/?username=litteryzu&color=542417&style=for-the-badge&label=✧) 
+
 #  watch the stars w me. "
 
 
