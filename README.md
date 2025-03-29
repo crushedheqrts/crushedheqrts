@@ -8,11 +8,11 @@
 
 
 
-### ✧  wie / glisten ,,
+ ✧  wie / glisten ,,
 
-### ✧  he / him + she / her ,,
+ ✧  he / him + she / her ,,
 
-### ✧  sensitive, nice trust ,,
+ ✧  sensitive, nice trust ,,
 
 # " i know i piss u off ,, -aimed "
 
