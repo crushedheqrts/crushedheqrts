@@ -1,34 +1,19 @@
-# ✧ welcomes2 intro,,!
 
-![](https://komarev.com/ghpvc/?username=litteryzu&color=641c41&style=for-the-badge&label=PROFILE+VIEWS) 
+![tumblr_71890a28262fcbd05672d17686fb6bd9_3d902d44_1280 (2)](https://github.com/user-attachments/assets/c575db77-31f6-4e89-bc49-f7da4bdd70ce)
 
-![tumblr_d2f19eb03779017c4e6278309992f1a4_3def4c0b_1280 (1)](https://github.com/user-attachments/assets/c453eec9-be65-4984-9608-f8e4fa9f4542)
+#  watch the stars w me. "
 
 
-![4eaff47f1e796bd4d056bc045d14f854-removebg-preview](https://github.com/user-attachments/assets/d729e0cd-357f-4d0e-ab8d-85900aa68eee)
 
-# ✧ PT INFO
 
-✧ - sensitive, please iwcare
+### ✧  wie / glisten ,,
 
-✧ - **dnc** any of my skins, ask for inspo unless friend
+### ✧  he / him + she / her ,,
 
-✧ - dni : skin stealers
+### ✧  sensitive, nice trust ,,
 
-✧ - int with m : non-skin stealers, trustable people
+# " i know i piss u off ,, -aimed "
 
-# ✧ ABT ME
+# ![tumblr_7459037a48a478f1879b4503073da6e8_631cda16_1280 (1) (1)](https://github.com/user-attachments/assets/6afda1f0-8698-4c5e-b112-d61f3a890179) [draw](https://yzuwi.straw.page) ![tumblr_294e24fb17f3fe4e65c227ad762010c9_2be42309_1280 (2)](https://github.com/user-attachments/assets/1e2fd559-5c20-4f3d-8370-7078a3693a2a)
 
-✧ - wie / glisten irl 
 
-✧ - trans ftm
-
-✧ - sensitive
-
-✧ - nice, cool trust
-
-✧ - sometimes freaky, pls tell me if my behaviour is bad, ill change it 4 u
-
-✧ ♡ = skittles, **puppi**, howler, isa, ryxii, sm1 in pt, varesa/celeste/herta, ryu, curlyfri
-
-![4eaff47f1e796bd4d056bc045d14f854-removebg-preview](https://github.com/user-attachments/assets/d729e0cd-357f-4d0e-ab8d-85900aa68eee)
