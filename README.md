@@ -5,11 +5,11 @@
 ![tumblr_ec4fcc37ced091cfc9a9ce58369fc15b_d672f988_640](https://github.com/user-attachments/assets/f87cfd0e-2057-469d-a6e1-36e847bfcc9a)
 
 
- ✧  wie / glisten&goob irl '
+ ✧ *wie/goob&glisten irl trust*  ✧ *she/her & he/him*
 
- ✧  he / him + she / her '
+ ✧ *easy 2 hurt, though nice!1*
 
- ✧  easy to hurt & nice trust '
+ ✧ **PLSPLS** *c+h and int i beg*
 
 
 
