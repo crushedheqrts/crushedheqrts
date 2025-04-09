@@ -3,16 +3,16 @@
 
 ![](https://komarev.com/ghpvc/?username=litteryzu&color=542417&style=plastic&label=✧) 
 
-# " i burnt the water "
+# " oh no, i dont save people, i just like hugging! "
 
 
 
 
- ✧  wie / glisten ,,
+ ✧  wie / glisten&goob irl '
 
- ✧  he / him + she / her ,,
+ ✧  he / him + she / her '
 
- ✧  sensitive, nice trust ,,
+ ✧  easy to hurt & nice trust '
 
 
 
