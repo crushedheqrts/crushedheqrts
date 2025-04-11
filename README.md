@@ -1,3 +1,7 @@
+![](https://komarev.com/ghpvc/?username=litteryzu&color=825244&style=plastic&label=◡+VIEWS) 
+
+
+
 <p style="text-align: justify;"><em>&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; <img src="https://github.com/user-attachments/assets/43ce8523-1150-4607-92a7-6749dcc09b66"
 class="fr-fic fr-dib" width="280" height="244.712"></p>
 
