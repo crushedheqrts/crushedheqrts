@@ -2,11 +2,11 @@
 
 
 
-<img src="https://github.com/user-attachments/assets/734b5ca6-dc37-474a-b814-100e854de22f"
-class="fr-fic fr-dib" width="700" height="500.712"></p>
+<img src="https://github.com/user-attachments/assets/904899d8-8028-44ef-abeb-fd6f5db4e2e9"
+class="fr-fic fr-dib" width="700" height="600.712"></p>
 
  
-# the 1x4lings ^^
+# me & my wife ^^
 
 ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
 
@@ -18,5 +18,5 @@ class="fr-fic fr-dib" width="700" height="500.712"></p>
 
 ︵︵　　 　︵︵︵︵　　 please draw on my straw ^^ i would appreciate it　　  (๑>◡<๑)
 
-<img src="https://github.com/user-attachments/assets/a516cbc1-626b-430b-9732-5735b6a31cc3"
-class="fr-fic fr-dib" width="900" height="300.712"></p>
+<img src="https://github.com/user-attachments/assets/e7fab885-4f17-482c-a2ba-957ed571c527"
+class="fr-fic fr-dib" width="600" height="600.712"></p>
