@@ -10,7 +10,7 @@ class="fr-fic fr-dib" width="700" height="600.712"></p>
 
 ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
 
-ଓ 　 　　 　 　　 　　 𓎟𓎟         　　,. azure kinner!!! ^^　  .  
+ଓ 　 　　 　 　　 　　 𓎟𓎟         　　,. call me qiv or nao ^^　  .  
 
 ⟡ 　 　　 𓏵　　 　questioning sexuality, (prob bisexual or trans) ꒰ঌ ໒꒱ 　. 　　　 　sensitive
 
