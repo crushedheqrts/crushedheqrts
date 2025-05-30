@@ -2,11 +2,12 @@
 
 
 
-<img src="https://github.com/user-attachments/assets/904899d8-8028-44ef-abeb-fd6f5db4e2e9"
-class="fr-fic fr-dib" width="700" height="600.712"></p>
+<img src="https://github.com/user-attachments/assets/e7fab885-4f17-482c-a2ba-957ed571c527"
+class="fr-fic fr-dib" width="600" height="600.712"></p>
+
 
  
-# me & my wife ^^
+# uhh me rrus
 
 ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
 
@@ -14,9 +15,7 @@ class="fr-fic fr-dib" width="700" height="600.712"></p>
 
 ⟡ 　 　　 𓏵　　 　questioning sexuality, (prob bisexual or trans) ꒰ঌ ໒꒱ 　. 　　　 　sensitive
 
-.,.,  　　 　 　　 　 　  　૮₍´˶• . • ⑅ ₎ა 　 　 　　　PUPZ/REN **ML** ><       
+　૮₍´˶• . • ⑅ ₎ა　︵︵︵︵　　 please draw on my straw ^^ i would appreciate it　　  (๑>◡<๑)
 
-︵︵　　 　︵︵︵︵　　 please draw on my straw ^^ i would appreciate it　　  (๑>◡<๑)
-
-<img src="https://github.com/user-attachments/assets/e7fab885-4f17-482c-a2ba-957ed571c527"
-class="fr-fic fr-dib" width="600" height="600.712"></p>
+<img src="https://github.com/user-attachments/assets/117ad083-678b-4480-be1f-1069cba14b42"
+class="fr-fic fr-dib" width="500" height="400.712"></p>
