@@ -2,12 +2,12 @@
 
 
 
-<img src="https://github.com/user-attachments/assets/48343e91-0169-47f9-9d75-968fb81eb06b"
-class="fr-fic fr-dib" width="700" height="500.712"></p>
+<img src="https://github.com/user-attachments/assets/70bfb6ea-bf85-4911-9ea0-9b259317af3e"
+class="fr-fic fr-dib" width="900" height="500.712"></p>
 
 
  
-# I LOVE PRETTYPR1NC3SS!! ^^^
+# "so people r only popular when they have supporter?"
 
 ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
 
@@ -19,5 +19,5 @@ class="fr-fic fr-dib" width="700" height="500.712"></p>
 
 　૮₍´˶• . • ⑅ ₎ა　︵︵︵︵　　 please draw on my straw ^^ i would appreciate it　　  (๑>◡<๑)
 
-<img src="https://github.com/user-attachments/assets/6dfc28f9-47a0-4cef-b364-38fb9417acbc"
-class="fr-fic fr-dib" width="700" height="500.712"></p>
+<img src="https://github.com/user-attachments/assets/d36a8a9f-7b1c-407d-9ece-a8a505f2fb5e"
+class="fr-fic fr-dib" width="900" height="500.712"></p>
