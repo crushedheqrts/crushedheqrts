@@ -2,8 +2,8 @@
 
 
 
-<img src="https://github.com/user-attachments/assets/f13ed77d-3ebb-4251-a4f4-c05adc0217d3"
-class="fr-fic fr-dib" width="600" height="600.712"></p>
+<img src="https://github.com/user-attachments/assets/48343e91-0169-47f9-9d75-968fb81eb06b"
+class="fr-fic fr-dib" width="700" height="500.712"></p>
 
 
  
@@ -11,11 +11,13 @@ class="fr-fic fr-dib" width="600" height="600.712"></p>
 
 ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
 
-ଓ 　 　　 　 　　 　　 𓎟𓎟         　　,. call me qiv or nao ^^　  .  
+ଓ 　 　　 　 　　 　　 𓎟𓎟         　　,. call me qiv or zenny ^^　  .  
 
 ⟡ 　 　　 𓏵　　 　questioning sexuality, (prob bisexual or trans) ꒰ঌ ໒꒱ 　. 　　　 　sensitive
 
+　     　     　     　     　 𓎟𓎟     　  　        　     　  　     　  ︵︵
+
 　૮₍´˶• . • ⑅ ₎ა　︵︵︵︵　　 please draw on my straw ^^ i would appreciate it　　  (๑>◡<๑)
 
-<img src="https://github.com/user-attachments/assets/117ad083-678b-4480-be1f-1069cba14b42"
-class="fr-fic fr-dib" width="500" height="400.712"></p>
+<img src="https://github.com/user-attachments/assets/6dfc28f9-47a0-4cef-b364-38fb9417acbc"
+class="fr-fic fr-dib" width="700" height="500.712"></p>
