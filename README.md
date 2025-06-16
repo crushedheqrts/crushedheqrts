@@ -2,22 +2,22 @@
 
 
 
-&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;<img src="https://github.com/user-attachments/assets/a47ad40f-138f-466e-912b-3423299d8da4"
-class="fr-fic fr-dib" width="600" height="400.712"></p>
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;<img src="https://github.com/user-attachments/assets/1e6dec05-902c-4dd9-83bd-3888e0ec8a44"
+class="fr-fic fr-dib" width="600" height="600.712"></p>
 
 
  
-# "so people r only popular when they have supporter?"
 
-꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
+・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・
 
-ଓ 　 　　 　 　　 　　 𓎟𓎟         　　,. call me qiv or zenny ^^　  .  
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;ଓ 　 　　 　 　　 　　 𓎟𓎟         　　,. call me qiv or zenny ^^　  .  
 
-⟡ 　 　　 𓏵　　　 　　 　questioning sexuality, (prob bisexual or trans)  　
+ 　
+ &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ⟡ 　 　　　 　　 　I AM BISEXUAL!!  　　 𓏵　
 
-　     　     　     　     　 𓎟𓎟     　  　        　     　  　     　  ︵︵
+　  &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;   　     　     　     　　 𓎟𓎟       
 
-　︵︵︵︵　　 please draw on my straw ^^ i would appreciate it　　  (๑>◡<๑)
+ &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;　︵︵︵︵　　 pls draw on straw, i would be so happy thanks　　  (๑>◡<๑)
 
 
-^^^ THESE IMAGES ARENT MINE!!!
+
