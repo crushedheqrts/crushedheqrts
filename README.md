@@ -1,4 +1,7 @@
-![](https://komarev.com/ghpvc/?username=litteryzu&color=825244&style=plastic&label=◡+STALKERS) 
+![](https://komarev.com/ghpvc/?username=litteryzu&color=825244&style=plastic&label=◡+STALKERS) ![blinkiesCafe-5h](https://github.com/user-attachments/assets/2fc5aae7-f479-443c-947b-c174fbde1ab4)
+
+
+
 
 
 &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;<img src="https://github.com/user-attachments/assets/af0ad4e5-5140-40bd-ac08-99336485ea88"
