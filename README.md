@@ -1,6 +1,5 @@
 ![](https://komarev.com/ghpvc/?username=litteryzu&color=825244&style=plastic&label=◡+STALKERS) 
 
-# me when i never miss a shot
 
 &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;<img src="https://github.com/user-attachments/assets/af0ad4e5-5140-40bd-ac08-99336485ea88"
 class="fr-fic fr-dib" width="700" height="500.712"></p>
@@ -11,7 +10,7 @@ class="fr-fic fr-dib" width="700" height="500.712"></p>
 ・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・・
 
 
-&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;ଓ 　 　　 　 　　 　　 𓎟𓎟         　　,. call me bliss  !!　  .  
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;ଓ 　 　　 　 　　 　　 𓎟𓎟         　　,. call me bliss  !　  .  
 
  　
  &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ⟡ 　 　　　 　　 　SHE/HER  　　 𓏵　
