@@ -2,16 +2,16 @@
 
 
 
-
-
-&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;<img src="https://github.com/user-attachments/assets/b4929491-1cb1-4521-b328-958346db3a78"
-class="fr-fic fr-dib" width="500" height="500.712"></p>
+════════════════════════════════════════════════════════════════════════════════
+ 
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;<img src="https://github.com/user-attachments/assets/62213215-de45-402f-ac72-3f11711e6bfc"
+class="fr-fic fr-dib" width="700" height="700.712"></p>
 
 
  
 
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
-
+════════════════════════════════════════════════════════════════════════════════
 
 &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;ଓ 　 　　 　 　　 　　 𓎟𓎟         　　,. Ⴆʅιʂʂ / ƈɾυʂԋҽɾ  !　  .  
 
@@ -25,8 +25,8 @@ class="fr-fic fr-dib" width="500" height="500.712"></p>
 
 
 &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; 
-&nbsp; &nbsp; &nbsp;<img src="https://github.com/user-attachments/assets/b1228b82-9c6e-497c-866b-9c56ec6be555"
-class="fr-fic fr-dib" width="400" height="270.712"></p>
+&nbsp; &nbsp; &nbsp;<img src="https://github.com/user-attachments/assets/a2ea01f8-1324-4ceb-980f-4974b6c12bcd"
+class="fr-fic fr-dib" width="400" height="300.712"></p>
 
 
 
