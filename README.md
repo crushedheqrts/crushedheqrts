@@ -6,7 +6,7 @@
 
  
 &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;<img src="https://github.com/user-attachments/assets/487053d6-1fac-44d8-8c93-a81cc148060e" 
-class="fr-fic fr-dib" width="900" height="700.712"></p>
+class="fr-fic fr-dib" width="800" height="700.712"></p>
 
 
  
@@ -26,6 +26,6 @@ class="fr-fic fr-dib" width="900" height="700.712"></p>
 
 &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; 
 &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;  &nbsp; &nbsp; &nbsp; &nbsp;<img src="https://github.com/user-attachments/assets/cfbcf2b5-0546-4791-9c4f-53226b7ec063"
-class="fr-fic fr-dib" width="400" height="300.712"></p>
+class="fr-fic fr-dib" width="500" height="200.712"></p>
 
 
