@@ -5,15 +5,15 @@
 &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;  &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=D7DBD2&width=500&lines=you+are+my+jackpot.;oh%2C+i+missed+the+stab!)](https://git.io/typing-svg)
 
  
-&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;<img src="https://github.com/user-attachments/assets/487053d6-1fac-44d8-8c93-a81cc148060e" 
-class="fr-fic fr-dib" width="800" height="700.712"></p>
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;<img src="https://github.com/user-attachments/assets/13bb8882-c338-4d9f-89b8-889e512917ef" 
+class="fr-fic fr-dib" width="700" height="800.712"></p>
 
 
  
 
 
 
-&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;ଓ 　 　　 　 　　 　　 𓎟𓎟         　　,. Ⴆʅιʂʂ / ƈɾυʂԋҽɾ  !　  .  
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;ଓ 　 　　 　 　　 　　 𓎟𓎟         　　,. 𝓮𝓶𝓲 , 𝓺𝓲𝓿 , 𝓬𝓻𝓾𝓼𝓱𝓮𝓻  !　  .  
 
  　
  &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ⟡ 　 　　　 　　 　ʂɧɛ / ɧɛཞ  　　 𓏵　
