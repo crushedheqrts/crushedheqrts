@@ -1,12 +1,12 @@
-![](https://komarev.com/ghpvc/?username=litteryzu&color=b2b8c2&style=plastic&label=◡+STALKERS)
+![](https://komarev.com/ghpvc/?username=litteryzu&color=b2b8c2&style=plastic&label=coolios)
 
 
  
 &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;  &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F7F5F0&width=435&lines=i+had+to+do+it.)](https://git.io/typing-svg)
 
  
-&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;<img src="https://github.com/user-attachments/assets/71db07f6-5331-4d2c-85e5-1723ab78cd1b"
-class="fr-fic fr-dib" width="700" height="800.712"></p>
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;<img src="https://github.com/user-attachments/assets/3db3c0b1-5b72-4270-9e09-095afa2dcb59"
+class="fr-fic fr-dib" width="2000" height="200.712"></p>
 
 
  
@@ -20,13 +20,13 @@ class="fr-fic fr-dib" width="700" height="800.712"></p>
 
 　  &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;   　     　     　     　　 𓎟𓎟       
 
- &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;　︵︵︵︵　　 ๓໐rē iຖf໐ ໐ຖ Şp, คlŞ໐ plēคŞē ໓rคຟ f໐r ๓ē คຖ໓ f໐llຟ ງithน๖!　　  (๑>◡<๑)
+ &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;  &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;　︵︵︵︵　　 мσяє ιηƒσ ση ѕρ, ρℓѕ cнєcк !!　　  ( ^ o ^ )
 
 
 
 &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; 
-&nbsp; &nbsp; &nbsp; &nbsp; &nbsp;  &nbsp; &nbsp; &nbsp; &nbsp;<img src="https://github.com/user-attachments/assets/cfbcf2b5-0546-4791-9c4f-53226b7ec063"
-class="fr-fic fr-dib" width="500" height="200.712"></p>
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp;  &nbsp; &nbsp; &nbsp; &nbsp;<img src="https://github.com/user-attachments/assets/8101fc4c-b0e0-44a2-8ed9-1efe017dc200"
+class="fr-fic fr-dib" width="2000" height="200.712"></p>
 
 
 
