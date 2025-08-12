@@ -2,17 +2,16 @@
 
 
 
+
  
 
- &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;<img width="600" height="120" alt="tumblr_b27838e405faf86ed9f4ddc922cbc405_125edbdc_2048" src="https://github.com/user-attachments/assets/38f8b22d-5502-433b-85f6-55871597e0cb" />
-
-
- &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;<img width="450" height="450" src="https://github.com/user-attachments/assets/2c4239af-5f55-4425-a03e-83581aa14d09" />
+ &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;  &nbsp; &nbsp;  &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;<img width="600" height="200" alt="tumblr_b27838e405faf86ed9f4ddc922cbc405_125edbdc_2048" src="https://github.com/user-attachments/assets/e31c74c9-d516-4d00-8ffa-bf804030e260" />
 
 
 
 
-&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; 　 　　 　 　　 　　 𓎟𓎟         　　,. 𝓮𝓶𝓲 , 𝓺𝓲𝓿 , 𝓬𝓻𝓾𝓼𝓱𝓮𝓻  　  .  
+
+&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; 　 　　 　 　　 　　 𓎟𓎟         　　,. emi , qiv , crusher  　  .  
 
  　
  &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; ⟡ 　 　　　 　　 　she / her  　　 𓏵　
@@ -34,4 +33,5 @@
 
 
 
- &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;<img width="600" height="120" alt="tumblr_b27838e405faf86ed9f4ddc922cbc405_125edbdc_2048" src="https://github.com/user-attachments/assets/38f8b22d-5502-433b-85f6-55871597e0cb" />
+
+ &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;  &nbsp; &nbsp;  &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;<img width="600" height="200" src="https://github.com/user-attachments/assets/4523ae5d-d31d-400d-840d-f0f4e65f3ec6" />
