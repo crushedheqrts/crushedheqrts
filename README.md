@@ -2,7 +2,7 @@
 
 
 
-
+ &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;  &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;  &nbsp; &nbsp; &nbsp; &nbsp; [![Typing SVG](https://readme-typing-svg.demolab.com?font=&pause=1000&color=F73743&width=435&lines=ichors+dripping+down...;BUT+I+CANT+LET+THAT+EYESORE+GET+ME+DOWN!)](https://git.io/typing-svg)
  
 
 
