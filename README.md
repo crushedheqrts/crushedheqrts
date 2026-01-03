@@ -13,9 +13,7 @@
 
 
 
-
-
-&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; 　 　　 　 　　 　　 𓎟𓎟         　　,. please call me vee or snow !!  　  .  
+$${\color{#cf1204}please \space call \space me \space vee, \space snow, \space choso \space !!}$$
 
  　
  &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; 　　　 　　 　she / her  　　 𓏵　 　　single
