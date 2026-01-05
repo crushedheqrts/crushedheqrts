@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=litteryzu&color=a19a52&style=plastic&label=STALKERS)
+![](https://komarev.com/ghpvc/?username=litteryzu&color=b08353&style=plastic&label=STALKERS)
 
 
 
