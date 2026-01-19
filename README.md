@@ -12,7 +12,7 @@
 
 
 
-$${\color{#aae3b9}please \space call \space me \space vee, \space snow, \space choso \space !!}$$
+$${\color{#aae3b9}please \space call \space me \space pix, \space or \space snow  \space !!}$$
 
  　
  &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;  &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;  &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;  &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; $${\color{#836e9c}she/her \space single }$$
