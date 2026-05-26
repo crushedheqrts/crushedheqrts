@@ -1,3 +1,4 @@
+<img src="https://github.com/user-attachments/assets/9720a092-b3d8-4a6d-a8ba-16e7bd78d1ce" style="background-color: transparent !important; ">
 
 
 
@@ -5,15 +6,9 @@
 
 
 
- 
-
-  &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;&nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;  &nbsp; &nbsp; &nbsp; &nbsp; <img width="600" height="600" src="https://github.com/user-attachments/assets/9720a092-b3d8-4a6d-a8ba-16e7bd78d1ce" />
 
 
-
-
-
-$${\color{#361f4a} pix  \space  or  \space  pxy  \space  .  \space  lithromantic  }$$
+$${\color{#361f4a} pix  \space  or  \space  jude  \space  .  \space  !  }$$
 
  　
  &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;  &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;  &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;  &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; $${\color{#633a87}she/her \space single }$$
