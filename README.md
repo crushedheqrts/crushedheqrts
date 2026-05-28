@@ -14,7 +14,7 @@ $${\color{#a74cb5} i  \space  play  \space  minecraft  \space  !!  }$$
 $${\color{#361f4a} ριx  \space  σɾ  \space  ʝυԃҽ  \space  !  }$$
 
  　
-   $${\color{#633a87}ʂԋҽ/ԋҽɾ \space  .  \space   αɳყ }$$
+$${\color{#633a87}ʂԋҽ/ԋҽɾ \space  .  \space   αɳყ }$$
 
    
  [atabook](https://crusher.atabook.org/)  &nbsp; [tiktok](https://www.tiktok.com/@crushedheqrts)
