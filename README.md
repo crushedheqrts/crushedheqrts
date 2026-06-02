@@ -6,12 +6,12 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Lora&pause=900&color=CE74F7&width=435&lines=My+humour+is+not+for+everyone+...;%231+Sharplow+Shipper+btww;bmf+im+really+cool)](https://git.io/typing-svg)
 
-$${\color{#a74cb5} i  \space  play  \space  minecraft  \space  !!  }$$
+$${\color{#a74cb5} im  \space   really \space  shy  \space   to  \space   talk  \space   to  \space   new  \space   friends,  \space   forgive   \space  me.  }$$
 
 
 
 
-$${\color{#361f4a} ριx  \space  σɾ  \space  ʝυԃҽ  \space  !  }$$
+$${\color{#361f4a} ριx  \space  σɾ  \space  ʝυԃҽ  \space    }$$
 
  　
 $${\color{#633a87}ʂԋҽ/ԋҽɾ \space  .  \space   αɳყ }$$
