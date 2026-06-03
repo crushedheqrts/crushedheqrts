@@ -11,10 +11,10 @@ $${\color{#a74cb5} im  \space   really \space  shy  \space   to  \space   talk  
 
 
 
-$${\color{#361f4a} ριx  \space  σɾ  \space  ʝυԃҽ  \space    }$$
+$${\color{#361f4a} pix \space  or  \space  jude  \space    }$$
 
  　
-$${\color{#633a87}ʂԋҽ/ԋҽɾ \space  .  \space   αɳყ }$$
+$${\color{#633a87} she/her \space  .  \space any  }$$
 
    
  [atabook](https://crusher.atabook.org/)  &nbsp; [tiktok](https://www.tiktok.com/@crushedheqrts)
