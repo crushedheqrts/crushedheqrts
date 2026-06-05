@@ -21,7 +21,7 @@ $${\color{#314b75} sign  \space  ata  \space  for  \space  a  \space  cookie  \s
 
 
    
- [atabook](https://crusher.atabook.org/)  &nbsp; [tiktok](https://www.tiktok.com/@crushedheqrts)
+ [atabook](https://crusher.atabook.org/)  &nbsp; [tiktok](https://www.tiktok.com/@crushedheqrts) &nbsp; [strawpage](https://crusherr.straw.page)
 
 
 
