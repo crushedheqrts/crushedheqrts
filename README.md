@@ -14,10 +14,10 @@ $${\color{#ffffff} she  \space  /  \space  her  \space  any }$$
 
 
 
-$${\color{#81a9ac} i  \space  dont  \space  have  \space  any  \space  links  \space  to  \space  tell  \space  more  \space  abt  \space  me  \space  so  \space  ask  \space  me  \space  things  \space  you  \space  wanna  \space  know  \space  abt  \space  me }$$
+$${\color{#d7dec9} i  \space  dont  \space  have  \space  any  \space  links  \space  to  \space  tell  \space  more  \space  abt  \space  me  \space  so  \space  ask  \space  me  \space  things  \space  you  \space  wanna  \space  know  \space  abt  \space  me }$$
 
 
-$${\color{#314b75} sign  \space  ata  \space  for  \space  a  \space  cookie  \space  . }$$
+$${\color{#a43578} sign  \space  ata  \space  for  \space  a  \space  cookie  \space  . }$$
 
 
 $${\color{#ffffff} <  \space  thad  \space  3 }$$
