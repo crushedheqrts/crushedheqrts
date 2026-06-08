@@ -10,17 +10,16 @@
 
 
 
-$${\color{#ffffff} she  \space  /  \space  her  \space  any }$$
+$${\color{#f5f3e6} she  \space  /  \space  her  \space  any }$$
 
 
 
-$${\color{#d7dec9} i  \space  dont  \space  have  \space  any  \space  links  \space  to  \space  tell  \space  more  \space  abt  \space  me  \space  so  \space  ask  \space  me  \space  things  \space  you  \space  wanna  \space  know  \space  abt  \space  me }$$
+$${\color{#c44d82} i  \space  dont  \space  have  \space  any  \space  links  \space  to  \space  tell  \space  more  \space  abt  \space  me  \space  so  \space  ask  \space  me  \space  things  \space  you  \space  wanna  \space  know  \space  abt  \space  me }$$
 
 
-$${\color{#a43578} sign  \space  ata  \space  for  \space  a  \space  cookie  \space  . }$$
+$${\color{#9e2656} sign  \space  ata  \space  for  \space  a  \space  cookie  \space  . }$$
 
 
-$${\color{#ffffff} <  \space  thad  \space  3 }$$
 
    
  [atabook](https://crusher.atabook.org/)  &nbsp; [tiktok](https://www.tiktok.com/@crushedheqrts) &nbsp; [strawpage](https://crusherr.straw.page)
